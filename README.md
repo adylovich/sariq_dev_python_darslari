@@ -1,0 +1,1 @@
+# sariq_dev_python_darslari
